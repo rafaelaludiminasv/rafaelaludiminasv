@@ -1,5 +1,5 @@
 - 👋 oi,eu sou @rafaelaludimilasv
-- 👀estou interessada em fazer fisioterapia
+- 👀estou interessada em site 
 - 📫 você pode me escontrar no meu email rafaela.valenzuela@escola.pr.gov.br ......
 
 <!---
